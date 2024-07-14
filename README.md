@@ -41,4 +41,3 @@ zolotepec)
 - Senditur. (n.d.). *Rutas de senderismo en México*. Recuperado de [https://senditur.com/rutas-de-senderismo-en-mexico](https://senditur.com/rutas-de-senderismo-en-mexico)
 - Desnivel. (n.d.). *Senderismo en México*. Recuperado de [https://desnivel.com/senderismo-en-mexico](https://desnivel.com/senderismo-en-mexico)
 - Wikiloc. (n.d.). *Rutas de senderismo*. Recuperado de [https://es.wikiloc.com/rutas-de-senderismo](https://es.wikiloc.com/rutas-de-senderismo)
-```
