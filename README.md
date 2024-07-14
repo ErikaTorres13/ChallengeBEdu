@@ -1,5 +1,5 @@
-## Explorando las Joyas Ocultas de México: Rutas de Senderismo Desconocidas en Otzolotepec
-![Explorando las Joyas Ocultas de México](https://lh3.googleusercontent.com/d/1BDizk79QYx0iWrpuAHsTiDJHcpUSm8_e=s500)
+# Explorando las Joyas Ocultas de México: Rutas de Senderismo Desconocidas en Otzolotepec
+![Explorando las Joyas Ocultas de México](https://lh3.googleusercontent.com/d/1BDizk79QYx0iWrpuAHsTiDJHcpUSm8_e=s100)
 
 Si estás buscando una experiencia de senderismo que combine desafío y belleza en un entorno natural poco conocido, San Mateo Capulhac en el municipio de Otzolotepec es el lugar ideal. Esta pequeña localidad, conocida por su represa, esconde rutas que prometen llevarte a través de paisajes impresionantes y poco explorados. Aquí te presentamos una ruta que no solo desafiará tu resistencia, sino que también te ofrecerá vistas que te dejarán sin aliento.
 
