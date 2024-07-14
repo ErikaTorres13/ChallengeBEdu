@@ -1,6 +1,6 @@
 # ChallengeBEdu
 Articulos informativos para la web sobre senderismo
-![Aventura en la Naturaleza](https://drive.google.com/file/d/1BDizk79QYx0iWrpuAHsTiDJHcpUSm8_e/view?usp=sharing)
+![Aventura en la Naturaleza](https://lh3.googleusercontent.com/d/1BDizk79QYx0iWrpuAHsTiDJHcpUSm8_e)
 
 # 🌄🌿 ¡Aventúrate a la Naturaleza con Nosotros! 🌿🌄
 
