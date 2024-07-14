@@ -1,6 +1,6 @@
 # ChallengeBEdu
 Articulos informativos para la web sobre senderismo
-![Aventura en la Naturaleza](https://pixabay.com/es/photos/monta%C3%B1eros-monta%C3%B1as-rastro-5649828/)
+![Aventura en la Naturaleza](https://media.istockphoto.com/id/1917023956/es/foto/mujer-feliz-con-una-mochila-amarilla-de-senderismo-disfrutando-del-paisaje-monta%C3%B1oso.jpg?s=1024x1024&w=is&k=20&c=9Y1igUDu0R6hVAQtdItpohS6a_uACiPNMCh9s9UvWwQ=)
 
 # 🌄🌿 ¡Aventúrate a la Naturaleza con Nosotros! 🌿🌄
 
