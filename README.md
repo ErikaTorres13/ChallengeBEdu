@@ -1,6 +1,6 @@
 # ChallengeBEdu
 Articulos informativos para la web sobre senderismo
-![Aventura en la Naturaleza](https://drive.google.com/uc?export=view&id=1BDizk79QYx0iWrpuAHsTiDJHcpUSm8_e)
+![Aventura en la Naturaleza](https://media.istockphoto.com/id/1521888521/es/foto/joven-turista-haciendo-senderismo-por-un-sendero-en-la-monta%C3%B1a.jpg?s=1024x1024&w=is&k=20&c=YWbKiTc0Ry6sYcC_xf1MK1CbcKbmcUIgj40LJ34rdQ8=)
 
 # 🌄🌿 ¡Aventúrate a la Naturaleza con Nosotros! 🌿🌄
 
